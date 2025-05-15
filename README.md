@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Scalaraadi
 - 👀 I’m interested in stock market , coding , graphic desgining , fights 
-- 🌱 I’m currently learning jva script
+- 🌱 I’m currently learning Wrestling
 - 💞️ I’m looking to collaborate on startup
 - 📫 You can reach me through my mail Id Aadish3907@gmail.com
 - 😄 Pronouns: Aadish 
